@@ -1,3 +1,4 @@
+![Profile views](https://komarev.com/ghpvc/?username=childhoodcomforts&color=grey)
 <h1 align="center"> 『 Wαηηα ριqγ ωıтн мє? 』- Kyusaku Yumeno </h1>
 <p align="center"/>
   <img width="2412" height="1900" alt="I love Kyusaku Yumeno smsmmsms" src="https://github.com/user-attachments/assets/7a9eedf4-802b-4fb1-94ba-832a2bbf5bb6"/>
